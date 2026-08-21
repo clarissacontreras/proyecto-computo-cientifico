@@ -1,4 +1,3 @@
-# Montserrat Almaguer Alemán
-# Cambio Clarissa
+# Carlos Manuel Juárez
 
 Alumna: María Clarissa Contreras Acosta
